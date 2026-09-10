@@ -335,22 +335,22 @@ A>从促排到分娩 10 个月，比国内短 2 个月（省排队）。
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/xdngswfavi.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/xdftwbnxhb.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/rkzmnozbzp.md)
-- [相关笔记](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/myykksdnsk.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/atyendftoq.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/qjwbwousur.md)
+- [美国第三代试管婴儿全流程揭秘：6大关键步骤带你无忧赴美生娃](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/xdngswfavi.md)
+- [美国第三代试管婴儿，成功率到底有多高对比国内真相曝光](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
+- [赴美第三代试管婴儿避坑全攻略：成功率·费用·流程一次看懂](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/xdftwbnxhb.md)
+- [美国第三代试管婴儿避坑指南：8大秘诀让成功率直线飙升](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/rkzmnozbzp.md)
+- [赴美做第三代试管婴儿避坑全攻略：成功率、费用与医院深度解析](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/myykksdnsk.md)
+- [美国第三代试管婴儿7大必看攻略：高龄夫妻备孕的福音](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/atyendftoq.md)
+- [美国第三代试管婴儿全流程干货指南：成功率、费用与避坑秘笈](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/qjwbwousur.md)
 
 ## 推荐站点
 
-- [延伸阅读](https://www.danqiushen.com/45.html)
-- [点击查看](https://www.danqiushen.com/43.html)
-- [点击查看](https://www.danqiushen.com/95.html)
-- [查看详情](https://www.wuzhenzhi.cn/87.html)
-- [查看详情](https://www.wuzhenzhi.cn/95.html)
-- [查看详情](https://www.wuzhenzhi.cn/28.html)
-- [查看详情](https://www.wuzhenzhi.cn/56.html)
+- [国内三代试管成功率最高的机构怎么看？科学解读PGT成功率与选择标准](https://www.wuzhenzhi.cn/60.html)
+- [移植后可以吃葱花卷吗？女性吃香葱对着床有影响吗](https://www.wuzhenzhi.cn/61.html)
+- [锦州妇婴医院试管成功率高吗？锦江妇幼试管成功率解析与备孕指南](https://www.wuzhenzhi.cn/62.html)
+- [湖南航天医院试管婴儿成功率多少？一文看懂数据与影响因素](https://www.wuzhenzhi.cn/63.html)
+- [合肥省立医院与合肥中山医院试管婴儿成功率解析：理性看待数据与选择](https://www.wuzhenzhi.cn/64.html)
+- [试管促排期可以吃玫瑰花酱吗？打促排可以吃苹果吗？饮食指南](https://www.wuzhenzhi.cn/65.html)
+- [移植后能吃脆脆肠吗？孕妇试管移植后饮食安全全解析](https://www.wuzhenzhi.cn/66.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*

@@ -345,12 +345,19 @@ A>从促排到分娩 10 个月，比国内短 2 个月（省排队）。
 
 ## 推荐站点
 
-- [国内三代试管成功率最高的机构怎么看？科学解读PGT成功率与选择标准](https://www.wuzhenzhi.cn/60.html)
-- [移植后可以吃葱花卷吗？女性吃香葱对着床有影响吗](https://www.wuzhenzhi.cn/61.html)
-- [锦州妇婴医院试管成功率高吗？锦江妇幼试管成功率解析与备孕指南](https://www.wuzhenzhi.cn/62.html)
-- [湖南航天医院试管婴儿成功率多少？一文看懂数据与影响因素](https://www.wuzhenzhi.cn/63.html)
-- [合肥省立医院与合肥中山医院试管婴儿成功率解析：理性看待数据与选择](https://www.wuzhenzhi.cn/64.html)
-- [试管促排期可以吃玫瑰花酱吗？打促排可以吃苹果吗？饮食指南](https://www.wuzhenzhi.cn/65.html)
-- [移植后能吃脆脆肠吗？孕妇试管移植后饮食安全全解析](https://www.wuzhenzhi.cn/66.html)
+- [['https://www.sdxxy.cn/20250601-486.html', '潍坊做代生公司费用成功率很高的医院排名在这']](https://www.sdxxy.cn/20250601-486.html)
+- [['https://www.hs52.cc/zhuanjiatuandui/302.html', '宫颈机能不全在怀孕几个月做b超能检查出来？']](https://www.hs52.cc/zhuanjiatuandui/302.html)
+- [['https://www.sandwnot.com/116453123220.html', '辽宁省中医院试管成功率高不高！辽宁省中医院电话预约！']](https://www.sandwnot.com/116453123220.html)
+- [['https://www.monpun.com/6359707286059.html', '解析广州试管婴儿的费用明细及整体花费']](https://www.monpun.com/6359707286059.html)
+- [['https://www.xmxinyhwzhs.cn/11271016818995.html', '江西代怀代生机构定方案后多久用氯米芬促排卵详解，这几天开始有差异']](https://www.xmxinyhwzhs.cn/11271016818995.html)
+- [['https://www.sdwmtgccl.cn/59685109046870.html', '深圳三代试管助孕费用解析：全面了解代怀与包成功套餐，助您规划生育之旅']](https://www.sdwmtgccl.cn/59685109046870.html)
+- [['https://www.jszgyh.com/308713002334.html', None]](https://www.jszgyh.com/308713002334.html)
+- [['https://www.cd-hssf.com/222650963339.html', '2026年运城做试管婴儿第三代费用总共多少？4万元够吗？']](https://www.cd-hssf.com/222650963339.html)
+- [['https://www.sasksjob.com/427612711175.html', '北京最便宜的辅助生殖套餐多少钱？省钱攻略与低价陷阱避坑指南']](https://www.sasksjob.com/427612711175.html)
+- [['https://www.cddyunw.com/226615734221.html', '代生龙凤胎:试管婴儿为什么双胞胎比较多']](https://www.cddyunw.com/226615734221.html)
+- [['https://www.cmanrxrr.cn/2647251146891.html', '移植后食谱,做试管代孕要多久时间完成']](https://www.cmanrxrr.cn/2647251146891.html)
+- [['https://www.sjb493.cn/14910872407894.html', '四川三代试管婴儿第三代做一次要多少钱，附上明细表！,供卵代怀孕多少钱']](https://www.sjb493.cn/14910872407894.html)
+- [['https://www.luruihang.com/2110.html', '宫腹腔镜后怀孕几率']](https://www.luruihang.com/2110.html)
+- [['https://www.hghbjm.com/194.html', '江西哪里做试管婴儿成功率高？']](https://www.hghbjm.com/194.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*

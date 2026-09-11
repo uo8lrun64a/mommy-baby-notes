@@ -29,14 +29,19 @@
 
 ## 推荐站点
 
-- [试管婴儿成功分享经验的案例有哪些？真实案例与经验视频解读](https://www.wuzhenzhi.cn/145.html)
-- [广州省二人民医院试管成功率多少？显微取精广医三院成功率科普解读](https://www.wuzhenzhi.cn/146.html)
-- [北医三院三代试管费用高吗？费用构成与影响因素详细解读](https://www.wuzhenzhi.cn/147.html)
-- [三代试管生化两次有影响吗？原因分析与应对建议全解读](https://www.wuzhenzhi.cn/148.html)
-- [第三代试管婴儿技术怎么选医院？避开排名榜误区的实用指南](https://www.wuzhenzhi.cn/149.html)
-- [思则凯多少钱一支——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/15.html)
-- [柳州妇幼第三代试管单胎多少钱？费用构成与影响因素详解](https://www.wuzhenzhi.cn/150.html)
-- [试管不成功查免疫要多少钱呀一次——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/16.html)
-- [北三医院试管婴儿费用大概多少钱一次啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/17.html)
+- [['https://www.cxit.com.cn/daiyunbaobao/14213.html', '代生中介机构:血hcg多少代表着床成功']](https://www.cxit.com.cn/daiyunbaobao/14213.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/70.html', '做试管婴儿之前可以过性生活吗']](https://www.ppmaas.com/guoneishiguanjigou/70.html)
+- [['https://www.chengyanghg.cn/330.html', '促排卵期间的身体反应与情绪变化分享']](https://www.chengyanghg.cn/330.html)
+- [['https://www.ewdboe.cn/100905842344.html', 'tt国际生殖中心怎么样？资质、成功率与口碑全面评估']](https://www.ewdboe.cn/100905842344.html)
+- [['https://www.esc45.com/111.html', '沈阳试管婴儿哪家医院成功率高']](https://www.esc45.com/111.html)
+- [['https://www.cd-hssf.com/321640064472.html', '潍坊试管婴儿医院排名「正规推荐」潍坊试管婴儿费用是多少']](https://www.cd-hssf.com/321640064472.html)
+- [['https://www.skiguo.cn/20250927-79.html', '助孕试管电话-青岛试管婴儿的具体费用，各项花费清单一览']](https://www.skiguo.cn/20250927-79.html)
+- [['https://www.sdwmtgccl.cn/59808291656699.html', '专业代生技术解惑：子宫残留促排卵方案及药物选择']](https://www.sdwmtgccl.cn/59808291656699.html)
+- [['https://www.cecigou.cn/zhengguidaiyunwang/20250928/15040.html', '妊娠糖尿病对胎儿智力影响']](https://www.cecigou.cn/zhengguidaiyunwang/20250928/15040.html)
+- [['https://www.bjwdzxkj.cn/3724147419716.html', '2026年马来西亚生殖中心医院解析(马来西亚做代生男孩地址成功率和费用)']](https://www.bjwdzxkj.cn/3724147419716.html)
+- [['https://www.sdxxy.cn/20250518-459.html', '济南三代助孕,济南省立医院试管婴儿主治医师好不好？详细花费明细！']](https://www.sdxxy.cn/20250518-459.html)
+- [['https://www.monpun.com/1313106281188.html', '广州2026年高成功率试管助孕医院名录：私立机构表现亮眼']](https://www.monpun.com/1313106281188.html)
+- [['https://www.syldezdhkj.cn/31371045112700.html', '广西试管供卵机构医院排名重新洗牌，更新2026广西供卵试管中心排名 ,试管代生费用']](https://www.syldezdhkj.cn/31371045112700.html)
+- [['https://www.dygsdyw.com/228660024131.html', '代怀生男孩:试管三个月内为什么不能吃番茄？试管怀孕后可不可以吃番茄？']](https://www.dygsdyw.com/228660024131.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*

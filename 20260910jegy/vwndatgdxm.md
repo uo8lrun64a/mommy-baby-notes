@@ -37,13 +37,19 @@
 
 ## 推荐站点
 
-- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
-- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
-- [第二代试管性别比例是多少？ICSI婴儿男女比例科学解读](https://www.wuzhenzhi.cn/115.html)
-- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
-- [4BC囊胚好还是八细胞一级冻胚好？冻胚与囊胚移植对比解析](https://www.wuzhenzhi.cn/117.html)
-- [移植囊胚方案有哪些项目可以做？囊胚移植替代方案类型全解析](https://www.wuzhenzhi.cn/118.html)
-- [新疆佳音医院收费大全：试管婴儿费用明细与流程解读](https://www.wuzhenzhi.cn/119.html)
-- [北京哪个医院能做供卵试管——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/12.html)
+- [['https://www.mimi567.com/389.html', '在南宁二医院做试管婴儿需要审核结婚证吗？']](https://www.mimi567.com/389.html)
+- [['https://www.cmanrxrr.cn/1119713893537.html', None]](https://www.cmanrxrr.cn/1119713893537.html)
+- [['https://www.hg00fj88.com/2153.html', '北京试管婴儿哪家好成功率是多少']](https://www.hg00fj88.com/2153.html)
+- [['https://www.zrbbavaq.cn/16465450146653.html', '2026黄山代生包生女儿吗医院比较新收费价目表一览']](https://www.zrbbavaq.cn/16465450146653.html)
+- [['https://www.ppmaas.com/shiguangongluanzhuyun/373.html', '助孕试管电话：孕晚期b超对胎儿影响']](https://www.ppmaas.com/shiguangongluanzhuyun/373.html)
+- [['https://www.dygsdyw.com/221620323079.html', '代生儿子电话:2026试管婴儿报销新政策，这个城市部分费用已进医保！']](https://www.dygsdyw.com/221620323079.html)
+- [['https://www.esc45.com/99.html', '代生产子-巴比诺电热蚊香液怎么样（巴比诺电蚊香液有用吗）']](https://www.esc45.com/99.html)
+- [['https://www.sdxxy.cn/20250508-440.html', '肇庆第三附属医院_肇庆三代私立供卵要求成功率和费用']](https://www.sdxxy.cn/20250508-440.html)
+- [['https://www.bjwdzxkj.cn/2585341120957.html', '供卵代生电话-有没有正规代怀,试管婴儿打夜针的目的是什么，促进卵泡发育只是其一']](https://www.bjwdzxkj.cn/2585341120957.html)
+- [['https://www.3899234.com/20250927-146.html', '生男孩子代怀&东莞试管婴儿医院排行榜你知道吗？']](https://www.3899234.com/20250927-146.html)
+- [['https://www.skiguo.cn/20250927-320.html', '代生包儿子-试管知识：青岛三代试管婴儿多少钱.']](https://www.skiguo.cn/20250927-320.html)
+- [['https://www.cxit.com.cn/daiyunxinwen/14199.html', '做试管费用_试管费用明细,粤西试管婴儿医院供卵,试管婴儿权威医院']](https://www.cxit.com.cn/daiyunxinwen/14199.html)
+- [['https://www.cndcxc.com/daiyunliucheng/20251021/17058.html', '孕5周胚胎着床了吗']](https://www.cndcxc.com/daiyunliucheng/20251021/17058.html)
+- [['https://www.xmxinyhwzhs.cn/23251074600716.html', '[卵子碎片高适合什么方案]代生供卵咨询促排方案']](https://www.xmxinyhwzhs.cn/23251074600716.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
